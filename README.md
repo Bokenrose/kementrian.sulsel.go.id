@@ -1,1 +1,0 @@
-# kementrian.sulsel.go.id
